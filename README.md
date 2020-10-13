@@ -1,16 +1,25 @@
-### Hi there 👋
+### Hey! Hey! Hey! Karl here :v:
 
-<!--
-**Fenrear12/fenrear12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+A 21 years old IT student studying at West Visayas State University, a low-key kind of guy that have lots of dreams
 
-Here are some ideas to get you started:
+At first many people will think of me as rude, but I'm just too shy to interact with new people. Given time you will eventually know that I'm not that kind of guy :laughing::laughing::laughing:. Want to travel around the world especially Japan :jp:. Mainly because I like to watch anime and also reads manga. But I also like the
+environment there, peace and quiet, I'm kinda a nature loving guy. Likes to go to quiet places where my mind can be at ease.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+### :o: Hobbies
+- :camera: Photography
+- :milky_way: Astrophotography
+- :badminton: Badminton
+- :movie_camera: watching anime
+- :video_game: playing video games
+
+### :memo: Currently learning
+- video editing
+- Networking
+- Computer Programming Languages
+- UX/UI design
+ 
+### :telephone_receiver: Contacts:
+- Gmail: karlmatthewcaceresnapatal@gmail.com
+- Facebook: https://www.facebook.com/karlmatthew.napatal
+- Instagram: https://www.instagram.com/fenrear/?hl=en
